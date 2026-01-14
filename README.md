@@ -6,8 +6,8 @@ just know if u got followed ur cool <
 
 ! . .HI im elysia, vinestaff kin!  prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
 
-. . Im really hard to talk to and im uncomfortable person to have around, keep in mind that im a minor so just dont be weird.
-english is NOT my first language so if im wrong just ignore it PLEASE, swipe down to see my int, iwec and dni list!
+. . Im really hard to talk to and im uncomfortable person to have around, keep in mind that im a minor so just dont be weird. 
+               swipe down to see my int, iwec and dni list!
 
 . .i dont chat much and i prefer not to, theres 50% chance im on ur github/strawpage rn, 
 
