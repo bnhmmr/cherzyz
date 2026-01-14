@@ -4,12 +4,14 @@
 
 just know if u got followed ur cool <
 
-HI im elysia, vinestaff kin! prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
+HI im elysia, vinestaff kin!  prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
 
 Im really hard to talk to and im uncomfortable person to have around, keep in mind that im a minor so just dont be weird.
 english is NOT my first language so if im wrong just ignore it PLEASE  
 
+
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/df043d48673e5d9c9c22d4cfdcd66978e97f3a2d/Vineberry%20Phighting%20%F0%9F%8D%93.jpg)
+
 
 INT
 
