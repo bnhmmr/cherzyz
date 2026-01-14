@@ -15,15 +15,15 @@ english is NOT my first language so if im wrong just ignore it PLEASE, swipe dow
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/9f82ec14a96f0908f1c7837383607c5a36c8a0e3/elysia%20gif%20honkai%20impact%203rd%20hi3%20hoyo%20banner%E2%80%A6.gif)
 
 
-!.INT
+!. .INT
 
 -feel free to interact with me! artists, cosplayers, cuddlers, mute and as long as youre not on dni list
 
-!.IWEC
+!. . .IWEC
 
 -people -13 and +17, genshin players, yumeshippers, 4saken
 
-!.DNI
+!. .DNI
 
 -its pretty simple, dont feel offended if you are here its just a type of warning..weirdos, covering people, TADC and murder drones fans/cosps, racists, proshippers,
 
