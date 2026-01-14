@@ -9,7 +9,6 @@ HI I prefer to be called cherry u can use venus/ven but its mostly for close fri
 Im really hard to talk to and im uncomfortable person to have around, keep in mind that im a minor so just dont be weird.
 english is NOT my first language so if im wrong just ignore it PLEASE  
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/58f687f8fd804032d19fadbeabcada53b8bfd879/%E2%97%9E%20%E0%BE%80%E0%BD%B2%E2%97%9F%20%CD%9C%20%20%E2%9C%8E%20%20%E2%9D%A4%EF%B8%8E%20ig%CE%B1ridoll%20(4).png)
 
 INT
 -feel free to interact with me! if u arent one of the people under the dni list 
