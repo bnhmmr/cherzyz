@@ -10,7 +10,7 @@ Im really hard to talk to and im uncomfortable person to have around, keep in mi
 english is NOT my first language so if im wrong just ignore it PLEASE  
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/df043d48673e5d9c9c22d4cfdcd66978e97f3a2d/Vineberry%20Phighting%20%F0%9F%8D%93.jpg)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/9f82ec14a96f0908f1c7837383607c5a36c8a0e3/elysia%20gif%20honkai%20impact%203rd%20hi3%20hoyo%20banner%E2%80%A6.gif)
 
 
 INT
