@@ -4,7 +4,7 @@
 
 just know if u got followed ur cool <
 
-! . .HI im elysia, vinestaff kin!  prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
+! . .HI im elysia, vinestaff kin!  I prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
 
 . . Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. 
 
