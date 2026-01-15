@@ -6,13 +6,13 @@ just know if u got followed ur cool <
 
 ! . .HI im elysia, vinestaff kin!  prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
 
-. . Im really hard to talk to and im uncomfortable person to have around, keep in mind that im a minor so just dont be weird. 
+. . Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. 
 
 
 --BEFORE U INTERACT: theres my int, iwec and dni notes on the bottom!
 
 
-. .i dont chat much and i prefer not to, theres 50% chance im on ur github/strawpage rn, 
+. .i dont chat much and i prefer not to, theres 50% chance im on ur github/strawpage rn!! waves
 
 
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/9f82ec14a96f0908f1c7837383607c5a36c8a0e3/elysia%20gif%20honkai%20impact%203rd%20hi3%20hoyo%20banner%E2%80%A6.gif)
