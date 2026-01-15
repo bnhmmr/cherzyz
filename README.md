@@ -5,7 +5,7 @@ just know if u got followed ur cool <
 
 # *Hello!*
 
-## ! . .im elysia and vinestaff kin!  I prefer to be called cherry u can use venus/ven but its mostly for close friends or ppl i allow to ( @bnhmmr ) 
+## ! . .im elysia and vinestaff kin!  I prefer to be called cherry u can use venus/ven but its mostly for close friends ( @bnhmmr ) but i dont mind
 
 
 
