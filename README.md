@@ -50,4 +50,4 @@ just know if u got followed ur cool <
 
 
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/914ae64354b270088c13afec89cddada7f53b97f/%D1%88%D1%82_.%20%D1%88%D1%82%D0%BE...%20%D0%B0%D0%B6%D1%8E%D1%8B%D1%87%D0%B6%D1%8B...%20%D0%BF%D0%B0%D1%87%D0%B5%D0%BC%D1%83_____)
-###### me and sevn 
+###### me and sevn ok
