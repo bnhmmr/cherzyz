@@ -45,6 +45,9 @@ just know if u got followed ur cool <
 
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/5ae568dece86ba679ff8108a81e7743f5efdaf29/%E2%97%9E%20%E0%BE%80%E0%BD%B2%E2%97%9F%20%CD%9C%20%20%E2%9C%8E%20%20%E2%9D%A4%EF%B8%8E%20ig%CE%B1ridoll.png)
 
-seven is my ankle-biter, 2-in-1 convertible stroller with food tray <3
+###### seven is my ankle-biter, 2-in-1 convertible stroller with food tray <3
 
 
+
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/914ae64354b270088c13afec89cddada7f53b97f/%D1%88%D1%82_.%20%D1%88%D1%82%D0%BE...%20%D0%B0%D0%B6%D1%8E%D1%8B%D1%87%D0%B6%D1%8B...%20%D0%BF%D0%B0%D1%87%D0%B5%D0%BC%D1%83_____)
+###### me and sevn 
