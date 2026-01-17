@@ -41,7 +41,7 @@ just know if u got followed ur cool <
 
 ### !. .DNI
 
--its pretty simple, dont feel offended if you are here its just a type of a warning..weirdos, covering people, TADC and murder drones fans/cosps, racists, proshippers,
+-its pretty simple, dont feel offended if you are here its just a type of a warning..weirdos, covering people, murder drones fans/cosps, racists, proshippers,
 
 ![image alt](https://github.com/Cherzyz/Cherzyz/blob/5ae568dece86ba679ff8108a81e7743f5efdaf29/%E2%97%9E%20%E0%BE%80%E0%BD%B2%E2%97%9F%20%CD%9C%20%20%E2%9C%8E%20%20%E2%9D%A4%EF%B8%8E%20ig%CE%B1ridoll.png)
 
