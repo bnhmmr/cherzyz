@@ -5,11 +5,11 @@ just know if u got followed ur cool <
 
 # *Hello!*
 
-## ! . .im elysia and vinestaff kin!  I prefer to be called cherry u can use venus/ven but its mostly for close friends ( @bnhmmr ). . but idm
+## ! . .if i die or disappear, please remember me in her.
 
 
 
-. . Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. Im mostly offtab dont mind it u can still cuddle but if u want to talk just whisper! cuddles enc
+. .hii im cherry, Im really hard to talk to and im uncomfortable person to have around but i love cuds, keep in mind that im a minor so just dont be weird. Im mostly offtab dont mind it u can still cuddle but if u want to talk just whisper, cuddles enc
 
 
 
@@ -20,11 +20,11 @@ just know if u got followed ur cool <
 
 
 
-## --BEFORE U INTERACT: theres my int, iwec and dni notes on the bottom!
+## --BEFORE U INTERACT: theres my int, iwec and dni notes on the bottom.
 
 
 
-*. .i dont chat much and i prefer not to, theres 50% chance im on ur github/strawpage rn!! waves*
+*. .i dont chat much and i prefer not to, theres 50% chance im on ur github/strawpage rn, waves*
 
 
 
