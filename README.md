@@ -28,7 +28,7 @@ just know if u got followed ur cool <
 
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/9f82ec14a96f0908f1c7837383607c5a36c8a0e3/elysia%20gif%20honkai%20impact%203rd%20hi3%20hoyo%20banner%E2%80%A6.gif)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/7f99c1485654bb7c6bd57954ec330459e074c942/%E2%98%864%20-%20Kanade%20Yoisaki.jpg)
 
 
 ### !. .INT
