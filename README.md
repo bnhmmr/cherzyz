@@ -3,7 +3,7 @@
 
 ### ! . .Im *cherry*, u can also call me venus or ven i dont mind
 im very friendly pls bmf im lonely                                                                                                                                                                                  
- no dnis just dont be too weird, *i like slingshot. slingshot kin*
+ no dnis just dont be weird, *i like slingshot. slingshot kin*
 ### WIP sorry im lazy 
 
 
