@@ -9,11 +9,9 @@ im very friendly pls bmf im lonely
 
 
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/09306739f35deb9bbe71f98fe4b6e3dbe9660a44/skateshot.jpg)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/b540f073aea83d3944389ec39418afd52b9b558b/G-a-22cXYAA6z33.png) 
+###### ^ if anyone knows how to make it bigger HELP ME
 ###### me and sven ok
-###### [GUESS WHO TURNED LEFT ✌😂😂] whispers: turns into a fangerous alpha
-###### [romeo but he's a tamed bottom] thinks: district over light   --> (they meant dead by daylight)
-###### [slimes you out [BT, c+h!!]] thinks: good kitten
 
 
 
