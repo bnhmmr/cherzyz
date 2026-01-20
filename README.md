@@ -3,7 +3,7 @@
 
 ## ! . .Im cherry, u can also call me venus or ven i dont mind 
 im very friendly pls bmf im lonely                                                                                                                                                                                      
- no dnis just dont be too weird
+ no dnis just dont be too weird, i like uhh coilshot, skateshot and uhh im a multishipper whatever it doesnt matter i love slingshot!1!!
 ### WIP sorry im lazy 
 
 
