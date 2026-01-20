@@ -13,7 +13,7 @@ im very friendly pls bmf im lonely
 ###### me and sven ok
 ###### [GUESS WHO TURNED LEFT ✌😂😂] whispers: turns into a fangerous alpha
 ###### [romeo but he's a tamed bottom] thinks: district over light   --> (they meant dead by daylight)
-
+###### [slimes you out [BT, c+h!!]] thinks: good kitten
 
 
 
