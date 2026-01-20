@@ -1,5 +1,5 @@
 
-![image alt](https://github.com/Cherzyz/Cherzyz/blob/fee704a0cd54397c3097f5c87bc7ec3303315e2f/pobierz%20(1).jpg)
+![image alt](https://github.com/Cherzyz/Cherzyz/blob/45141d584f2137748d496130f40d780de2cafee5/pobierz%20(2).jpg)
 
 ## ! . .Im cherry, u can also call me venus or ven i dont mind 
 im very friendly pls bmf im lonely                                                                                                                                                                                      
