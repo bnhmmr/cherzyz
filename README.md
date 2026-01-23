@@ -1,5 +1,5 @@
 
-![image](https://github.com/Cherzyz/cherzyz/blob/21dec9463bc2fa357ba033e1b741667c8d00faa9/destruction!.gif)
+![image](https://github.com/Cherzyz/cherzyz/blob/ad30c09d13239a65274ec086af0bc080fa84c8af/sword%20phighting.jpg)
 #### *"kisses on your hands!"*
 ### ! . .Im *cherry*, u can also call me venus or ven i dont mind
 im very friendly pls bmf im lonely !!                                                                                                                                                                               
