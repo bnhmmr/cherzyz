@@ -1,4 +1,4 @@
-![image alt](https://github.com/Cherzyz/cherzyz/blob/1491dd269e11fdaa88763ec5611a72f2f2f95c86/spokeishere.jpg)
+![image alt](https://github.com/Cherzyz/cherzyz/blob/cdda4fd3927066c394cdd0ef867217201e4aa057/pobierz%20(11).jpg)
   #### *"you dont understand."*
 ### ! . .Im *cherry, chers*, u can also call me venus or pie i dont mind
 im very friendly pls bmf im lonely !!                                                                                                                                                                               
