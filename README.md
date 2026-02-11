@@ -2,8 +2,8 @@
   #### *"in a room there may be 100 people and 99 may dont believe in you, but all you need is one who does."*            
 ⠈⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄, ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   ### .ᐟ . .  ⌞Im *cherry, chers*, u can also call me venus or pie i dont mind⌝
- ➤ im very friendly pls bmf im lonely                                                                                                                                                                                
-╰┈➤  no dnis just dont be weird
+ ➤ im very friendly actually lol                                                                                                                                                                              
+╰┈➤  no dnis just dont be too weird
 ### WIP sorry im lazy 
 
 
