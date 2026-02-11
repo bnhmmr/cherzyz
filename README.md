@@ -1,4 +1,4 @@
-![image](https://github.com/Cherzyz/cherzyz/blob/28902f4f34dc9fad6225b5ffe6a7f901c66c0b9f/Jumperwho%20fanart%20(art%20by%20%40rivavi0%20on%20X).jpg)
+![image](https://github.com/Cherzyz/cherzyz/blob/7cb248f134e5250ddba5687370d8cdc3de739de7/pobierz%20(12).jpg)
   #### *one way or another.*            
   ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ ⟡ . ✩‧₊˚ ☾
   ### .ᐟ . .  ⌞Im *cherry, chers*, u can also call me venus or pie i dont mind⌝
