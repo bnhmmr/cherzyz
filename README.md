@@ -4,7 +4,8 @@
   ### .ᐟ . .  hi im cherry/chers u can call me whatever i dont mind, 
   ###### ᯓ she/her is a pref (!!) for me but things like; bro, dude, bruh, man are totally fine
  ➤ im very friendly , wont bite                                                                                                                                                                           
-╰┈➤  no dnis just dont be too weird                          
+╰┈➤  no dnis just dont be too weird                              
+
  ♯┆  https://prns.cc/laohz
 ### WIP sorry im lazy 
 
