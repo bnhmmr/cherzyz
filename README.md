@@ -6,8 +6,7 @@
  ➤ im very friendly , wont bite                                                                                                                                                                           
 ╰┈➤  no dnis just dont be too weird                              
 
- ♯┆  https://prns.cc/laohz
-### WIP sorry im lazy 
+###### WIP sorry im lazy 
 
 
 
