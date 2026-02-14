@@ -13,9 +13,10 @@ $$\color{#FF45FF}{\tiny she/her \space mostly.}$$
 <p align="center">
 <img width="200" height="200" alt="17710284069975074725345690357771" src="https://github.com/user-attachments/assets/f684ce7d-ed91-47b9-b063-61c481f161db" />
 
+$$\color{#FF00FF}{no \space dni \space just \space dont \space be \space weird.}$$
 
-
-
+$$\color{#FF45FF}{\tiny c+h \space freely}$$
+</p>
 
 
 
